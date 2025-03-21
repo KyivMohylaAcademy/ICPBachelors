@@ -22,7 +22,7 @@ To participate, you must register on **DoraHacks**, as it is the platform for pr
 
 To qualify for the grant, you need to confirm your participation.
 
-🔗 **Sign-up spreadsheet** 👉 [Google Sheet](https://docs.google.com/spreadsheets/d/1och3Bb6K1depwzRS3SY_r0k_-FkDMOggcls8TWI5x0s/edit?gid=628633883#gid=628633883)
+🔗 **Sign-up spreadsheet** 👉 [Google Sheet](https://docs.google.com/spreadsheets/d/1och3Bb6K1depwzRS3SY_r0k_-FkDMOggcls8TWI5x0s/edit?gid=1709754470#gid=1709754470)
 
 **Steps:**
 
